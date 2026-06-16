@@ -1,4 +1,3 @@
-# PCE_comp_WP_TEAM_OJAS
 
 Title:
 
